@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on learning though communication
 - 📫 How to reach me is to teach me ;)
 - 😄 Pronouns: Der
-- ⚡ Fun fact: I don´t even know what i want, till i want! 
--   
+- ⚡ Fun fact: I don´t even know what i want, till i want it! 
+
 
 <!---
 OGHighZenBerg/OGHighZenBerg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
